@@ -1,1 +1,1 @@
-In addition to my academic schedule, I am also a member of GROUP/ACTIVITY. I have learned much about collaborating with others as a member of GROUP/ACTIVITY.
+In addition to my academic schedule, I also volunteer for a few events around my area, for example: Volunteering for Sleepy Hollow Half Marathon & Volunteering for Cancer Walk at Manhattanville College. I enjoy working and collaborating with other people so that I learn and develop new skills.
