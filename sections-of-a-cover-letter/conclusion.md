@@ -1,4 +1,5 @@
-In closing, I would be delighted to discuss further points related to the JOB role. Should you wish to discuss those points, please reach out on PHONE or via email on EMAIL.
+I am excited at the prospect of bringing my talents to your company. I look forward to hearing from you, at your earliest convenience, to discuss how my experience and qualifications will prove valuable in the Web Developer role.
+Thank you for your time and consideration.
 
-Respectfully yours OR Respectfully OR Cordially,
-NAME
+Respectfully,
+Xuan Thu Dao
