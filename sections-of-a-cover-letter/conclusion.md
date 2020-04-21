@@ -1,4 +1,8 @@
-In closing, I would be delighted to discuss further points related to the JOB role. Should you wish to discuss those points, please reach out on PHONE or via email on EMAIL.
+For your convince there is a resume attached, which further details my skills and education. 
+If you have any question, please do not hesitate to call. 
+I am looking forward to getting a response from you soon. 
 
-Respectfully yours OR Respectfully OR Cordially,
-NAME
+Best Regards, 
+
+Lauren Ditizio
+
